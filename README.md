@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **bhumithakur1218@gmail.com**
 
-- ⚡ Fun fact **I think I**
+- ⚡ Fun fact **I think I am Funny xD**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
